@@ -1,3 +1,3 @@
 ## Github tutorials
-### for begineers in Hindi
+### for Begineers in Hindi
 
